@@ -1,1 +1,1 @@
-# re
+I feel like we’re still on the topic of renting expensive cars purely for the experience, emotions, and impressions, and then I read an article about renting a luxury car with a driver [https://www.arabwheels.ae/blog/rolls-royce-rental-dubai-hire-phantom-ghost-cullinan-luxury-chauffeur-service/](https://www.arabwheels.ae/blog/rolls-royce-rental-dubai-hire-phantom-ghost-cullinan-luxury-chauffeur-service/). What do you think? Is that basically a very expensive taxi? I’d probably enjoy riding in a luxury car, but I’d still skip the driver.
